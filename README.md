@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mehrab
+- 👀 I’m interested in Programming in the field of artificial intelligence and websits
+- 🌱 I’m currently learning DeepLearning
+- 💞️ I’m looking to collaborate on Companies and companies in the field of artificial intelligence and programming
+- 📫 How to reach me => instagram : https://www.instagram.com/m.2.0.0.6.a?igsh=cHp0ZzdwczFqeTc4 - phone number : +989102326358 
+- ⚡ Fun fact: just doing work :)
